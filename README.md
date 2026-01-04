@@ -4,7 +4,7 @@
 
 
 
-
+I'll fix this later
 [strawpage](https://stellanxn.straw.page/) - [pronouns](https://pronouns.cc/@stellanxn) - [ata](https://stellanxn.atabook.org/)
 
 
