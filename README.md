@@ -1,10 +1,14 @@
 <div align="center">
-<img width="1936" height="1505" alt="Untitled186_20260104170742" src="https://github.com/user-attachments/assets/fcad8ffc-b148-4a10-9a1f-6f80a5c0c83a" />
+
+
+
+<img width="2355" height="1435" alt="Untitled186_20260104192031" src="https://github.com/user-attachments/assets/668cd03c-d0ef-47af-9880-3443ec35050e" />
 
 
 
 
-I'll fix this later
+
+
 [strawpage](https://stellanxn.straw.page/) - [pronouns](https://pronouns.cc/@stellanxn) - [ata](https://stellanxn.atabook.org/)
 
 
@@ -18,6 +22,7 @@ I'll fix this later
 
 
 
+<img width="2355" height="281" alt="Untitled186_20260104192230" src="https://github.com/user-attachments/assets/ecd87bdd-28d8-4d57-a2dd-5d7d5c53b7b5" />
 
 
 </div>
