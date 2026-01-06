@@ -11,16 +11,16 @@
 </p>
 
 
-${\textsf{\color{#7a1c2e}⟢}}$      [strawpage](https://stellanxn.straw.page/)       ${\textsf{\color{#e66470}//}}$      [prns.cc](https://pronouns.cc/@stellanxn)     ${\textsf{\color{#f6878c}//}}$    [atabook](https://stellanxn.atabook.org/)
+$\LARGE\textcolor{#7a1c2e}{\textsf{⟢}}$       [strawpage](https://stellanxn.straw.page/)       ${\textsf{\color{#e66470}//}}$      [prns.cc](https://pronouns.cc/@stellanxn)     ${\textsf{\color{#f6878c}//}}$    [atabook](https://stellanxn.atabook.org/)
  
 ${\textsf{\color{#9a2d3d}　⏔ ⏔ ⏔ }}$              ${\textsf{\color{#fce6e5}꒰ ᧔ෆ᧓ ꒱}}$             ${\textsf{\color{#9a2d3d}　⏔ ⏔ ⏔ }}$
 
 
 ${\textsf{\color{#f5858b}‿₊ ୨}}$     ${\textsf{\color{#fccbc5}  He }}$     ${\textsf{\color{#f7aca7} They ,}}$    ${\textsf{\color{#f7b2ab} 18 }}$  ${\textsf{\color{#fcc3be}୧ ₊‿ }}$ 
 
-${\textsf{\color{#7a1c2e}⟢}}$     ${\textsf{\color{#D3ADB0}  Call me : }}$     ${\textsf{\color{#f8b4ad} Ant, }}$    ${\textsf{\color{#f58f92}Anthony, }}$  ${\textsf{\color{#ee747e}Stell, }}$   ${\textsf{\color{#d95564}or }}$    ${\textsf{\color{#aa3546}Tenna !}}$  
+$\LARGE\textcolor{#7a1c2e}{\textsf{⟢}}$      ${\textsf{\color{#D3ADB0}  Call me : }}$     ${\textsf{\color{#f8b4ad} Ant, }}$    ${\textsf{\color{#f58f92}Anthony, }}$  ${\textsf{\color{#ee747e}Stell, }}$   ${\textsf{\color{#d95564}or }}$    ${\textsf{\color{#aa3546}Tenna !}}$  
 
-${\textsf{\color{#7a1c2e}⟢}}$     ${\textsf{\color{#d95564}  Would prefer if }}$     ${\textsf{\color{#f58f92}you didn't take }}$     ${\textsf{\color{#D3ADB0}inspo / copy my skins ! }}$   
+$\LARGE\textcolor{#7a1c2e}{\textsf{⟢}}$      ${\textsf{\color{#d95564}  Would prefer if }}$     ${\textsf{\color{#f58f92}you didn't take }}$     ${\textsf{\color{#D3ADB0}inspo / copy my skins ! }}$   
 
 
 <img width="2355" height="281" alt="Untitled186_20260104192230" src="https://github.com/user-attachments/assets/ecd87bdd-28d8-4d57-a2dd-5d7d5c53b7b5" />
