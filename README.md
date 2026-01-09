@@ -11,7 +11,7 @@
 </p>
 
 
-$\LARGE\textcolor{#7a1c2e}{\textsf{⟢}}$       [strawpage](https://stellanxn.straw.page/)       ${\textsf{\color{#e66470}//}}$      [prns.cc](https://pronouns.cc/@stellanxn)     ${\textsf{\color{#f6878c}//}}$    [atabook](https://stellanxn.atabook.org/)
+$\LARGE\textcolor{#7a1c2e}{\textsf{⟢}}$       [strawpage](https://stellanxn.straw.page/)       ${\textsf{\color{#e66470}|}}$      [prns.cc](https://pronouns.cc/@stellanxn)     ${\textsf{\color{#f6878c}|}}$    [atabook](https://stellanxn.atabook.org/)
  
 ${\textsf{\color{#9a2d3d}　⏔ ⏔ ⏔ }}$              ${\textsf{\color{#fce6e5}꒰ ᧔ෆ᧓ ꒱}}$             ${\textsf{\color{#9a2d3d}　⏔ ⏔ ⏔ }}$
 
