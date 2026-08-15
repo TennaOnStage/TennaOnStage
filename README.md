@@ -10,14 +10,14 @@
 
 ---
 
-**01**　<sub>Taking inspo from my skins is fine!</sub>
+**01**　<sub>Taking inspo from my skins is fine!</sub>  
 ***Don't copy 'em!***
 
-**02**　<sub>1+ year in the Deltarune fandom　✦　my special interest</sub>
+**02**　<sub>1+ year in the Deltarune fandom　✦　my special interest</sub>  
 **so expect me to *be critical!***
 
-**03**
-I love making friends! Usually with **[Glace](https://github.com/breezibee)** or **[Bee](https://github.com/RobinInASnowstorm)** <sub>⌢⌢　or sittin' on my <i>lonesome.</i>　⌢⌢</sub>
+**03**  
+I love making friends! Usually with **[Glace](https://github.com/RobinInASnowstorm)** or **[Bee](https://github.com/breezibee)** <sub>⌢⌢　or sittin' on my <i>lonesome.</i>　⌢⌢</sub>
 
 <br>
 
