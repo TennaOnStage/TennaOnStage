@@ -16,8 +16,7 @@
 **02**　<sub>1+ year in the Deltarune fandom　✦　my special interest</sub>  
 **so expect me to *be critical!***
 
-**03**  
-I love making friends! Usually with **[Glace](https://github.com/RobinInASnowstorm)** or **[Bee](https://github.com/breezibee)** <sub>⌢⌢　or sittin' on my <i>lonesome.</i>　⌢⌢</sub>
+**03**  I love making friends! Usually with **[Glace](https://github.com/RobinInASnowstorm)** or **[Bee](https://github.com/breezibee)** <sub>⌢⌢　or sittin' on my <i>lonesome.</i>　⌢⌢</sub>
 
 <br>
 
