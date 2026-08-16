@@ -4,19 +4,21 @@
 
 ## **THE ONE AND ONLY, ANTHONY!**
 
-<sup>𐄈　17　⌢⌢　**He/They/Hym**　✦　🎶　**W2I**</sup>
+<big>𐄈　17　⌢⌢　**He/They/Hym**　✦　🎶　**W2I**</big>
 
-<sub>𐄈　*Yer best bet at gettin' ahold of me is **whispering!***　𐄈</sub>
+<br>
+
+<big>𐄈　*Yer best bet at gettin' ahold of me is **whispering!***　𐄈</big>
 
 ---
 
-♡　**Taking inspo from my skins is fine!** <sub>Just don't copy 'em! ♡</sub>
+♡　**Taking inspo from my skins is fine!** <big>Just don't copy 'em! ♡</big>
 
-⌢⌢　**C+H is ALWAYS welcome if I'm alone!**　⌢⌢ <sub>Otherwise, please ask first ♡</sub>
+⌢⌢　**C+H is ALWAYS welcome if I'm alone!**　⌢⌢ <big>Otherwise, please ask first ♡</big>
 
-✦　**I LOVE making friends!** <sub>Usually with **[Glace](https://github.com/RobinInASnowstorm)** or **[Bee](https://github.com/breezibee)**</sub> <sub>⌢⌢　*...or sittin' on my **lonesome.***　⌢⌢</sub>
+✦　**I LOVE making friends!** <big>Usually with **[Glace](https://github.com/RobinInASnowstorm)** or **[Bee](https://github.com/breezibee)**</big> <big>⌢⌢　*...or sittin' on my **lonesome.***　⌢⌢</big>
 
-♡　**MAAAASSSSIVE Polymike shipper**　♡ <sub>I'm literally Pluey.</sub>
+♡　**MAAAASSSSIVE Polymike shipper**　♡ <big>I'm literally Pluey.</big>
 
 <br>
 
