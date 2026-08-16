@@ -18,7 +18,7 @@
 
 ✦　**I LOVE making friends!** <big>Usually with **[Glace](https://github.com/RobinInASnowstorm)** or **[Bee](https://github.com/breezibee)**</big> <big>⌢⌢　*...or sittin' on my **lonesome.***　⌢⌢</big>
 
-♡　**MAAAASSSSIVE Polymike shipper**　♡ <big>JONGLERS AND BATTATS PLEASE INT!!!!</big>
+♡　**MAAAASSSSIVE Polymikes shipper**　♡ <big>JONGLERS AND BATTATS PLEASE INT!!!!</big>
 
 <br>
 
