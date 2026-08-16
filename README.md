@@ -2,7 +2,7 @@
 
 <img width="360" height="360" alt="3dgifmaker98763" src="https://github.com/user-attachments/assets/44bad6d1-fe5a-49d1-b440-5f86e9567a69" />
 
-## **THE ONE AND ONLY, ANTHONY!**
+# 𐔌 . ⋮ **THE ONE AND ONLY, ANTHONY!** .ᐟ . ꒱
 
 <big>𐄈　17　⌢⌢　**He/They/Hym**　✦　🎶　**W2I**</big>
 
@@ -12,13 +12,13 @@
 
 ---
 
-♡　**Taking inspo from my skins is fine!** <big>Just don't copy 'em! ♡</big>
+♡　**Taking inspo from my skins is fine!** <big>⌢⌢　*Just don't copy 'em!* ♡</big>
 
-⌢⌢　**C+H is ALWAYS welcome if I'm alone!**　⌢⌢ <big>Otherwise, please ask first ♡</big>
+⌢⌢　**C+H is ALWAYS welcome if I'm alone!**　⌢⌢ <big>*Otherwise, please ask first ♡*</big>
 
 ✦　**I LOVE making friends!** <big>Usually with **[Glace](https://github.com/RobinInASnowstorm)** or **[Bee](https://github.com/breezibee)**</big> <big>⌢⌢　*...or sittin' on my **lonesome.***　⌢⌢</big>
 
-♡　**MAAAASSSSIVE Polymike shipper**　♡ <big>I'm literally Pluey.</big>
+♡　**MAAAASSSSIVE Polymike shipper**　♡ <big>JONGLERS AND BATTATS PLEASE INT!!!!</big>
 
 <br>
 
