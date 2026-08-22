@@ -6,25 +6,25 @@
 
 <big>**17**　⌢⌢　**He / They / Hym**　✦　🎶　**W2I**</big>
 
-*𐔌　Yer best bet at gettin' ahold of me is ****whispering!****　꒱*
+*𐔌　Yer best bet at gettin' ahold of me is **whispering!**　꒱*
+
+<big>**Anthony / Ant**　⌢⌢　**Pluey / Plues / Plue**</big> <br> <small>Call me whichever you like! ♡</small>
 
 <img width="200" src="https://64.media.tumblr.com/767cca987e73a91be31d931b1aa948a5/77f98a941f1c7eda-7c/s100x200/ff8c230cc83666822cef860447694cbaac52addd.gifv" />
 
-･ ⟢ Taking inspo from my skins is fine!
-<big>⌢⌢　Just don't copy 'em! ♡</big>
+･ ⟢ Taking inspo from my skins is fine! <big>⌢⌢　Just don't copy 'em! ♡</big>
 
-⌢⌢　C+H is ALWAYS welcome if I'm alone!
-<big>Otherwise, please ask first 🎀 </big>
+･ ⟢ C+H is ALWAYS welcome if I'm alone! <big>Otherwise, please ask first 🎀</big>
 
-･ ⟢ ⋮ Selective Followback!゛༝.
-<big>If I think you're cool, I'll moot you! ୨ৎ</big>
+･ ⟢ Selective Followback! ゛༝. <big>If I think you're cool, I'll moot you! ୨ৎ</big>
 
-🎀　Pluey fictionkin! &
-<big>MASSIVE Polymikes shipper <big>
-<big>JONGLERS & BATTATS PLEASE INT!! ‹𝟹 </big>
+🎀　Pluey fictionkin! & <big>MASSIVE Polymikes shipper ♡</big>
 
-<big>PLEASE keep NSFW topics out of in-game interaction with me!
-This is the SAFE SERVER!!!!! </big>
+<big>JONGLERS & BATTATS PLEASE INT!! ‹𝟹</big>
+
+<big>PLEASE keep NSFW topics out of in-game interaction with me! <br>
+This is the SAFE SERVER!!!!!</big>
+
 <br>
 
 <img width="350" alt="IMG_4164" src="https://github.com/user-attachments/assets/f7dacacb-5d86-4c80-89e6-0f500bf9f3d3" />
@@ -35,8 +35,7 @@ This is the SAFE SERVER!!!!! </big>
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/2c6e98e2-3f7f-4646-b2e2-3fc0547c3a13" />
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/674914fe-60b3-4993-8283-cdcb1d2da00c" />
 
-<br>
-   
-   **[ata](https://antoffair.atabook.org/)**                   ㅤ  ㅤ **[pronouns](https://pronouns.cc/@antoffair)**   ㅤ              ㅤ   **[strawp](https://antoffair.straw.page/)**
+**[ata](https://antoffair.atabook.org/)**　ㅤ **[pronouns](https://pronouns.cc/@antoffair)**　ㅤ **[strawp](https://antoffair.straw.page/)**
 
 </div>
+
