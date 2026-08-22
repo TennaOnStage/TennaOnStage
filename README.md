@@ -25,11 +25,11 @@ This is the SAFE SERVER!!!!!</big>
 
 <br>
 
+**[ata](https://antoffair.atabook.org/)**　ㅤ **[pronouns](https://pronouns.cc/@antoffair)**　ㅤ **[strawp](https://antoffair.straw.page/)**
+
 <img width="350" alt="IMG_4164" src="https://github.com/user-attachments/assets/f7dacacb-5d86-4c80-89e6-0f500bf9f3d3" />
 
 <br>
-
-**[ata](https://antoffair.atabook.org/)**　ㅤ **[pronouns](https://pronouns.cc/@antoffair)**　ㅤ **[strawp](https://antoffair.straw.page/)**
 
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/15b27d5f-2d16-4b1d-9c8f-be29366762b0" />
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/2c6e98e2-3f7f-4646-b2e2-3fc0547c3a13" />
