@@ -35,6 +35,10 @@ This is the SAFE SERVER!!!!!</big>
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/2c6e98e2-3f7f-4646-b2e2-3fc0547c3a13" />
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/674914fe-60b3-4993-8283-cdcb1d2da00c" />
 
+<br>
+
+  <img width="305" height="33" alt="Screenshot 2026-08-24 185051" src="https://github.com/user-attachments/assets/6d829d4b-250f-4ec4-b8f0-b6987348ff70" />
 
 </div>
+
 
