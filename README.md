@@ -18,7 +18,7 @@
 
 ･ ⟢ Selective Followback! ゛༝. <big>If I think you're cool, I'll moot you! ୨ৎ</big>
 
-🎀　Pluey fictionkin! & <big>MASSIVE Polymikes shipper ♡ JONGLERS & BATTATS PLEASE INT!! ‹𝟹</big>
+🎀　Pluey & Tenna fictionkin! & <big>MASSIVE Polymikes shipper ♡ JONGLERS & BATTATS PLEASE INT!! ‹𝟹</big>
 
 <big>PLEASE keep NSFW topics out of in-game interaction with me!
 This is the SAFE SERVER!!!!!</big>
