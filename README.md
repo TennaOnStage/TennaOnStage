@@ -20,7 +20,7 @@
 
 ㅤ **7teen**　x　**He / They / Neos** ◡◡　**𝚆2𝙸** </br>
 
-ㅤ **WHISPERING**　⋮　**is The easiest way to get ahold of me!** <img src="https://64.media.tumblr.com/05122236a9a394f671682299be44c3ab/4637d9dcfe8e5031-e0/s75x75_c1/01dd5f7c2f975686625cd5d107c8b7a3da154eee.gifv" width="18"> 
+ㅤ **WHISPERING**　⋮　**is The easiest way to get ahold of me!**
 
 ㅤ **VERY extroverted**　‹𝟹　**I LOVE meeting new people!** </br>
 
